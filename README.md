@@ -1,2 +1,5 @@
-# Bowa_God_
-I guess Im gonna be Figuring out how to display this on my Profile.
+* Howdy, What?
+
+* You think I have any Idea for this?
+
+* Well... I dont.
